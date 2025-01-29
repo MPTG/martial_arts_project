@@ -1,1 +1,0 @@
-# martial_arts_project
